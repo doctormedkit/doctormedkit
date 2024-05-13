@@ -4,4 +4,4 @@ solari . medkit ✧
 
  main interests : phighting! & regretevator  💊
   🩺 " back in crossroads, back to hospital bills. "
-![yeh.](https://twitter.com/splatzooka/status/1788377469185134886/photo/1)
+![+](https://2.bp.blogspot.com/-fvCsm2LrOBw/T4PQJX8kPNI/AAAAAAAAIcg/bmPf1SoQtx0/s1600/vxznueo5.gif)
